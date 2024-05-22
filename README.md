@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Ysofter3
+- 👀 I'm interested in exposing my art to the world
+- 🌱 I’m currently learning 3d modeling and programming at UE5
+- 💞️ I’m looking to collaborate on make games or movies
+- 📫 I’m on Instagram @ysofter3 or Whatsapp +55 (21) 976687987
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: My friends told me I look like Harry Potter
